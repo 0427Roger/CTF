@@ -4,7 +4,7 @@
 > All techniques are presented for educational purposes only.
 
 ---
-I am not 林雨璇. hahaha lol  ☺‽‽
+
 ## Overview
 
 - **Category**: Misc
